@@ -1,1 +1,1 @@
-# Shukhratll.github.io
+https://shukhratll.github.io/
