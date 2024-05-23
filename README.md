@@ -1,4 +1,4 @@
-# https://nikkyfreaky.github.io/
+# https://shukhratll.github.io/
 
 # https://nikkyfreaky.github.io/events.html
 
